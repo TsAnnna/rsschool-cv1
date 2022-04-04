@@ -37,6 +37,6 @@ Since my specialty is a marketing programmer, I've been doing link building late
 
 ## Languages
 
-**English:** A2
+**English:** A2  
 **Russian:** Native 
 
